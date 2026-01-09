@@ -1,0 +1,1 @@
+branding/minimal-logo-concept/
